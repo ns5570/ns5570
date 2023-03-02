@@ -2,7 +2,7 @@
 - 👀 I’m interested in Web Development
 - 🌱 I’m currently learning Data Science
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me linkedin:
+- 📫 How to reach me linkedin:nishant.singh7666@gmail.com
 -                     insta:nishant_singh01
 
 <!---
