@@ -1,3 +1,4 @@
+![Health Care Medical Clinic Center Promo Banner Landscape](https://user-images.githubusercontent.com/121055024/232757356-a1d34d8b-9394-482e-a8a8-8244f73d2956.png)
 ![Orange Minimalist Weekend Special Spicy Sauced Winger Banner](https://user-images.githubusercontent.com/121055024/229868459-7232ce39-763a-4dd5-92e3-d8fd34bef50a.png)
 
 
