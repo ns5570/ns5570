@@ -1,5 +1,5 @@
 ![Orange Minimalist Weekend Special Spicy Sauced Winger Banner](https://user-images.githubusercontent.com/121055024/229868459-7232ce39-763a-4dd5-92e3-d8fd34bef50a.png)
-Health Care Medical Clinic Center Promo Banner Landscape.png
+
 
 <h1 align="center">Hi 👋, I'm Nishant Singh</h1>
 <h3 align="center">A passionate full stack developer</h3>
